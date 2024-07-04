@@ -1,3 +1,4 @@
-my evolution, i decide the cards of cards
-let that be the way....
-for all the days of my life..
+winnin. 
+https://aezlox.com
+https://twitter.com/aezl21
+https://github.com/minichest
